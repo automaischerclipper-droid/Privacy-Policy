@@ -1,1 +1,1 @@
-https://github.com/automaischerclipper-droid/Privacy-Policy/tree/main
+tiktokQWEXlHN2mzEauoMT7YC5yf4SomUrX38C.txt
